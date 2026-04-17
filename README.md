@@ -1,4 +1,4 @@
-# 📄 Resume - Aleesha Muslim
+# 📄 Resume - Eman Fatima
 
 ## 👤 Profile
 **Name:** Eman Fatima
